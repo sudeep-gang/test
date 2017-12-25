@@ -1,1 +1,1 @@
-chetah hum mai
+chetah hun mai
